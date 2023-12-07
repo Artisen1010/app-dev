@@ -1,6 +1,6 @@
 # My Favorite Movie
 
-## 1. **Zaido (2007)**
+## 1. Zaido (2007)
 **Genre:** Adventure/Action
 
 
